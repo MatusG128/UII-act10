@@ -35,6 +35,11 @@ https://youtu.be/QXFajIS6leg?si=Ic6FNGpgksBsZTR7
 
 ![image](https://github.com/MatusG128/UII-act10/assets/143744150/0269fbf3-ef87-4c80-b434-9f735342d745)
 
+![image](https://github.com/MatusG128/UII-act10/assets/143744150/7945cf75-289a-4ad0-ac97-db57d9fc718b)
+
+![image](https://github.com/MatusG128/UII-act10/assets/143744150/cdfaec43-1cf3-479e-a494-9ef8f0cacba9)
+
+
 
 
 
