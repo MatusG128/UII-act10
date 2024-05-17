@@ -22,7 +22,8 @@ https://youtu.be/QXFajIS6leg?si=Ic6FNGpgksBsZTR7
 
 ![image](https://github.com/MatusG128/UII-act10/assets/143744150/fe29e048-b885-4ddc-b859-a4077ed4856f)
 
-![image](https://github.com/MatusG128/UII-act10/assets/143744150/476478da-7b0d-45c9-b203-e9d7de65e92f)
+![image](https://github.com/MatusG128/UII-act10/assets/143744150/16702224-44b4-4c24-9bb6-60b0f2cadf05)
+
 
 ![image](https://github.com/MatusG128/UII-act10/assets/143744150/2a18e142-568e-4d48-b907-8b6e7e241714)
 
